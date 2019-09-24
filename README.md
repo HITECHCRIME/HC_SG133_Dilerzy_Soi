@@ -38,4 +38,4 @@ dilerzy soi
 
 ## Music Video
 
-Vegan Memetic Warfare. There is significant flaw in the thinking of imposing vegans. They assume the worldview should be the same as theirs. They go vegan and they pound the announce button to everyone instead of focusing on themselves.
+Vegan Memetic Warfare. There is significant flaw in the thinking of imposing vegans. They assume the worldview should be the same as theirs. They go vegan and they pound the announce button to everyone instead of focusing on themselves. They want to change people around them without figuring out that majority doesn't care at all. They have different priorities and beliefs. It is normal to have different beliefs and preconceptions. It is normal to discuss it but not impose it on other people. Be water, be gentle.
