@@ -38,4 +38,4 @@ dilerzy soi
 
 ## Music Video
 
-Vegan Memetic Warfare
+Vegan Memetic Warfare. There is significant flaw in the thinking of imposing vegans. They assume the worldview should be the same as theirs. They go vegan and they pound the announce button to everyone instead of focusing on themselves.
