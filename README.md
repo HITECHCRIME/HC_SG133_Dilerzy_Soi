@@ -16,6 +16,8 @@ Description.
 ## Lyrics
 
 ```
+skąd się bierze mleko z soi
+skoro soi się nie doi
 dilerzy soi
 
 ```
